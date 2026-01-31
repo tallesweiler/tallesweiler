@@ -1,5 +1,5 @@
 # 💫 About Me:
-Me chamo Talles, tenho 22 anos e atualmente estou cursando Ciência da Computação na UFES.
+Me chamo Talles, tenho 23 anos e atualmente estou cursando Ciência da Computação na UFES.
 
 
 ## 🌐 Socials:
